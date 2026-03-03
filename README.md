@@ -41,8 +41,8 @@ Acredito na força da representatividade, na valorização da cultura negra e na
 
 ## 📫 Contato
 
-- LinkedIn: [Seu LinkedIn]
-- Email: [seuemail@email.com]
+- LinkedIn:https://www.linkedin.com/in/elias-o-a84a5417b/
+- Email: dev.calcule@gmail.com
 
 ---
 
